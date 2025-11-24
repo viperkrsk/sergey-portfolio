@@ -43,9 +43,13 @@ Invited to serve as a judge for an international cybersecurity award (1.4M reach
 
 🔗 Links
 	•	LinkedIn: https://www.linkedin.com/in/sergey-butenko-sailor/
+	
 	•	Kanbanchi: https://kanbanchi.com
+	
 	•	Yochting School: https://yochting.school
+	
 	•	Course: https://yochting.school/courses/yochting-intro/
+	
 	•	ISSA Accreditation: https://issa.global/school-list
 
 ⸻
