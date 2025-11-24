@@ -42,6 +42,7 @@ Invited to serve as a judge for an international cybersecurity award (1.4M reach
 ⸻
 
 🔗 Links
+
 	•	LinkedIn: https://www.linkedin.com/in/sergey-butenko-sailor/
 	
 	•	Kanbanchi: https://kanbanchi.com
