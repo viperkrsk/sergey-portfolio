@@ -53,4 +53,5 @@ Invited to serve as a judge for an international cybersecurity award (1.4M reach
 📬 Contact
 
 sergey.butenko [at] kanbanchi.com
+
 sergey [at] yochting.com
